@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Hermann d'ALMEIDA, worker of Alitcha Tech
